@@ -1,4 +1,5 @@
-studienarbeit
-=============
+Sandra Modschiedler
 
-Studienarbeit
+Stefanie Ring
+
+Julia Siegmund
